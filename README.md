@@ -1,0 +1,2 @@
+# myprofile
+FOLLOW GITHUB + KASIH STAR DULU OM, BARU DI FORK🌟
